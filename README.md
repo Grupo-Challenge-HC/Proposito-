@@ -16,4 +16,4 @@
 
 
 
-▸ **FEITO POR : Asuyz (Andreygdio) / glMuller (Gabriel Lourenço Müller) / yJoaoVictor10 (João Victor). Obrigado pelo acesso.
+▸ **FEITO POR : Asuyz (Andreygdio) / glMuller (Gabriel Lourenço Müller) / yJoaoVictor10 (João Victor). Obrigado pelo acesso.**
